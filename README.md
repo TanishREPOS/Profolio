@@ -1,2 +1,0 @@
-# Profolio
-PORTFOLIO  — Tanish Karmakar
